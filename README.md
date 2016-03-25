@@ -35,4 +35,15 @@ si girò per alzarsi. La sua concentrazione era al massimo, totalmente impegnato
 essere la melma che sentiva sotto di lui e che adesso cercava di togliersi dalle mani.
 "Dave?"
 Una voce femminile, non si era accolto di che qualcuno si era aggrappato al retro della sua giacca.
-Quando 
+Quando era diventato impossibile ignorare gli effetti delle onde elettriche e l'umanità era stata costretta a rifugiarsi nel sottosuolo per molti era già troppo tardi. Molti anni erano stati perduti alla ricerca di un virus inesistente.
+Alla fine gli "elettro-negazionisti", convinti sostenitori che la causa delle degenerazioni celebrali fossero le onde elettriche che trasmettevano l'elettricità senza fili, erano passati dallo status di "stupidi complottisti" a "salvatori dell'umanità". La loro soluzione era semplice e impossibile allo stesso tempo. In una società basata sui robot la richiesta
+di energia elettrica era enorme; anche se fosse stato teoricamente possibile ritornare all'uso dei cavi, e c'erano molti
+dubbi, avrebbe richiesto anni in cui l'umanità aveva la piacevole scelta tra impazzire o morire di fame.
+Rifugiarsi nel sottosuolo era sembrata l'opzione migliore, in superficie c'era elettricità a volontà e robot più che
+capaci di soddisfare tutte le esigenze degli esseri umani. Nel frattempo gli scienziati avrebbero trovato una soluzione
+al problema e tutto sarebbe andato per il meglio.
+Dave non sapeva cosa fosse andato storto, però sapeva che gli effetti delle onde non erano uguali per tutti.
+Judit era intelligente e simpatica quando l'aveva conosciuta, magari un pò brutta, comunque una piacevole compagnia
+nel sottosuolo. Eppure la sua mente era degenerata comunque in brevissimo tempo ed era diventata una specie di
+che su alcuni,
+come Judit
