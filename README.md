@@ -1,4 +1,4 @@
-# doom
+# Super annoying
 Ed ancora un'altra esplosione.
 Al buio, nel tunnel, Dave si girò lentamente nella direzione da cui sembrava provenire il frastuono.
 Decisamente inopportuno.
@@ -50,3 +50,16 @@ Dave era il capo del gruppo di cui faceva parte Judit e forse era normale che le
 Lui non aveva cibo, non c'era stato tempo di prendere delle provviste, e scuotendo la testa si soprese a sorridere.
 Ogni cosa era super-super fastidiosa. Dopo due giorni di digiuno un "animale" che voleva del cibo era un pò più di fastidioso.
 Era la prefezione del fastidio, buio, freddo, melma, esplosioni (ma perchè diavolo lì inseguivano? quello non riusciva a capirlo) e qualcuno che gli ricordasse quanta fame avesse. Forse era stato fortunato a non riuscire a dormire, magari l'animale gli avrebbe staccato un dito con un morso.
+E pensare che era iniziato tutto in maniera così stupida...
+
+#Steal a child
+"Dobbiamo rubare un bambino!"
+"Eh?!" - Dave guardava Jake avvicinarsi con le scorte settimanali di cibo ed era piuttosto sicuro di aver capito male.
+Jake e Dave si erano conosciuti durante la distribuzione delle scorte, erano a capo di due gruppi confinanti, ed avevano un accordo per immagazzinare insieme le loro scorte. Era stata un'idea di Jake che sosteneva il vantaggio di avere le scorte al sicuro vicino alle loro zone. Dave capiva il vantaggio di avere le scorte più vicine rispetto ai magazzini comuni, oltre a quello non confessato di lasciare a Jake una buona parte di incombenze che sarebbero toccate a lui. Sulla sicurezza aveva annuito in maniera conspiratoria, anche se non aveva la più pallida idea di cosa passasse per la mente di Jake. Le scorte arrivavano regolarmente dalla superficie, cortesia dei robot che lavoravano incessantemente, non aveva mai sentito di qualcuno che avesse tentato di rubarle.
+"C'era una nota assieme alle scorte: dobbiamo rubare un bambino!" - il solito entusiasmo di Jake sempre pronto a rendersi utile.
+"Perchè? Qui è pieno di bambini, ce ne sono anche troppi. Puoi rubare uno di quelli nel mio gruppo."
+"No, un neonato. Uno di quelli che nascono in superficie."
+"Ah" annuì Dave fingendo di aver capito perfettamente. Quando la realtà virtuale era stata perfezionata il sesso naturale era diventato obsoleto. C'era l'imbarazzo della scelta tra partner bellissimi, con i caratteri più diversi e la ricerca del piacere perfetto. Erano anni ormai che i bambini erano concepiti geneticamente. Sapeva però che alcuni malati, tornati agli istinti primordiali, avevano ricominciato ad accoppiarsi fisicamente ed in superficie erano state create delle cliniche dove questi bambini venivano fatti nascere e poi portati nel sottosuolo. Perchè qualcuno volesse uno di quei bambini era però un mistero per lui.
+"Dovremmo andare oggi pomeriggio!"
+Eccolo lì, Jake il drogato, come lo chiamavano di nascosto. Tutti ormai sapevano che le onde elettriche in superficie generavano dei danni celebrali, ma nessuno sapeva ancora spiegare come. Gli effetti erano impossibili da catalogare, alcuni si ammalavano subito, altri dopo anni di normalità diventavano dei vegetali all'improvviso. Alcuni restavano esposti per mesi e tornavano senza problemi, altri si ammalavano dopo qualche ora. Per altri, come Jake, avevano l'effetto di una grandiosa sbornia. Intontiti, storditi, liberi da se stessi per qualche ora tornavano nel sottosuolo e poi si riprendevano. Però restava in loro una smania, un desiderio di tornare in superficie, di riprovare quella sensazione di oblio e prima o poi restavano esposti troppo a lungo e finivano con l'ammalarsi.
+"Oggi? Dove? Non sapevo che ci fosse una clinica qui vicino".
